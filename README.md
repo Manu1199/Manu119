@@ -5,3 +5,6 @@ Boas vindas ao meu perfil <3 😸
 - Estou estudando no _Alura_
 
 
+
+![](https://media1.tenor.com/m/MUMCSgl-224AAAAd/im-listening-kiara-carrera.gif
+)
